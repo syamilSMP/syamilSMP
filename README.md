@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @syamilSMP
 - 
-- 🌱 I’m  learning about how to make game
+- 🌱 My dream is become UI / UX Designer
 
 
 <!---
